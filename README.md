@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...xd
 - 😄 Pronouns: ...xd
 - ⚡ Fun fact: ...xd
--->  xd
+--> I'm in Biomedical Engineering
